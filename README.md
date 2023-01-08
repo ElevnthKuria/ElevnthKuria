@@ -1,1 +1,1 @@
-Infor. Scientist | DS//ML Practitioner
+Information Professional | Data Scientist | Researcher |
